@@ -14,8 +14,10 @@ does everyone know how to play 2 truths 1 lie?
 
 Is this all we're going to be doing today :o
 
-pretty much, just mess around with github and Git-Good
 
-i like slipping
 
-Let me try
+
+2 truths 1 lie Charlie 
+1 I like pineapples /L/ lie
+2 I like coffee /L/ truth
+3 I am allergic to dust /L/ lie
