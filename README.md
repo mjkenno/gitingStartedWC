@@ -23,4 +23,4 @@ Is this all we're going to be doing today :o
 3 I am allergic to dust /L/ lie
 
 
-This seens like it could get messy very easily -_-
+This seems like it could get messy very easily -_-
