@@ -29,3 +29,7 @@ This seems like it could get messy very easily -_-
 Do you think roman will notice if we disappear
 
 Definetely not
+
+
+
+lol I might work on the stuff from this morning cause I didn't finish
