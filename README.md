@@ -16,7 +16,7 @@ Is this all we're going to be doing today :o
 
  
  
-2 truths 1 lie Charlie
-1 I like pineapples
-2 I like coffee
-3 I am allergic to dust
+2 truths 1 lie Charlie 
+1 I like pineapples /L/ lie
+2 I like coffee /L/ truth
+3 I am allergic to dust /L/ lie
