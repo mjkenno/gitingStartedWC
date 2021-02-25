@@ -27,10 +27,4 @@ This seems like it could get messy very easily -_-
 
 
 
-
-Definetely not
-
-
-
-just deleting incriminating evidence
-
+deletttttttttttttttttttteeeeeeeeeeee
